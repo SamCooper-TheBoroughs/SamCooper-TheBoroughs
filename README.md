@@ -8,9 +8,9 @@
 
 "quote"
 
-♡ Sol/William/afton | she/he/they/it | SYS
+♡ Sol/William/Billy| she/he/they/it | SYS
 ♡ I'm talkative, it's shutting me up that's the trick /j
-♡ interests: FNAF , Gravity falls , Scream , bsd , mha (fandom dniuf or i do) , Stranger things , + more
+♡ ask me about my ships i have many :3
 ♡ my dni: is I block freely to create my own space. 
 
 ![Image](https://github.com/user-attachments/assets/9f881065-82a8-46b8-a78e-80bb4ddec650)
