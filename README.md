@@ -4,14 +4,9 @@
     
 ![Profile view counter](https://komarev.com/ghpvc/?username=your-github-ranpothedetective&label=visitors)
 
-![Image](https://github.com/user-attachments/assets/67940d7f-a5aa-4e91-99c4-a9a4a57c51d1)
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/b4cf30a6-1460-4f14-9c29-105bb4b04519" />
 
 "quote"
 
-♡ Sol/William/Billy| she/he/they/it | SYS
-♡ I'm talkative, it's shutting me up that's the trick /j
-♡ ask me about my ships i have many :3
-♡ my dni: is I block freely to create my own space. 
-
-![Image](https://github.com/user-attachments/assets/9f881065-82a8-46b8-a78e-80bb4ddec650)
-
+♡ anti-censorship 
+♡ f/os: connor (dbh) , simon (dbh) , ralph (dbh) , leon (re) , claire (re) , ada wong (re)
