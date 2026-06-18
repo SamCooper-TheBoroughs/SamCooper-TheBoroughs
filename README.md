@@ -8,5 +8,5 @@
 
 "quote"
 
-♡ anti-censorship 
+
 ♡ f/os: connor (dbh) , simon (dbh) , ralph (dbh) , leon (re) , claire (re) , ada wong (re)
